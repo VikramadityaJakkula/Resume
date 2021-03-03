@@ -8,7 +8,7 @@
 2. [Resume](https://www.scribd.com/document/482045048/Vikramaditya-CV)
 3. [File](https://drive.google.com/file/d/1Qh2aEYnueelCXrWy1ATG2UvJK7jvApjB/view?usp=sharing)
 4. [Flickr 1](https://www.flickr.com/photos/87187382@N04)
-5. [Flickr 3](https://www.flickr.com/photos/191465646@N05/?)
+5. [Flickr 3(see all photos till end)](https://www.flickr.com/photos/191465646@N05/?)
 
 
 # Business (Vik)
