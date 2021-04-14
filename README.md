@@ -3,13 +3,6 @@
 "You can build great software, if and only if you love it enough" - Vik.
 
 
-# Link:
-1. [Website](https://site-3147449-4342-6874.mystrikingly.com/)
-2. [Resume](https://www.scribd.com/document/482045048/Vikramaditya-CV)
-3. [File](https://drive.google.com/file/d/1Qh2aEYnueelCXrWy1ATG2UvJK7jvApjB/view?usp=sharing)
-4. [Flickr 1](https://www.flickr.com/photos/87187382@N04)
-5. [Flickr 2](https://www.flickr.com/photos/149066169@N08)
-6. [Flickr 3(see all photos till end)](https://www.flickr.com/photos/191465646@N05/?)
 
 
 # Business (Vik)
@@ -176,3 +169,9 @@ Smart Homes And Beyond, IOS Press:  Assistive Technology Research Series, volume
 6. Student Member, ACM SIGKDD (2007,2008, 2009)
 7. Magna cum Laude, National Scholars Honor Society (Since 2005).
 8. Texas Society of Professional Engineers (Since 2005).
+
+
+# Link:
+1. [Website](https://site-3147449-4342-6874.mystrikingly.com/)
+2. [Resume](https://www.scribd.com/document/482045048/Vikramaditya-CV)
+3. [File](https://drive.google.com/file/d/1Qh2aEYnueelCXrWy1ATG2UvJK7jvApjB/view?usp=sharing)
